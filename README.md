@@ -1,1 +1,0 @@
-# hchscarclub.github.io
